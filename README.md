@@ -1,1 +1,1 @@
-Internship certificate
+Internship-certificate-at-EIQ-company
